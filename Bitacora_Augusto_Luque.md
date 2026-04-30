@@ -1,0 +1,1 @@
+elejí a androide N° 17 porque porque me gusta su estilo: pelea con calma, es estratégico y no se cansa gracias a su energía infinita. Además, es independiente y no depende de transformaciones para ser fuerte.
