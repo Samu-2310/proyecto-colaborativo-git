@@ -1,1 +1,0 @@
-Yo eleji este planeta porque me llamo la atencion
