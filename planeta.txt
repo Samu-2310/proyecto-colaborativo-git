@@ -1,5 +1,1 @@
-feature_planeta_more
-Elegi el planeta Nuevo Namek porque cuenta con agua verde, hierba azul, y cielo verde.
-=======
 Elegí el planeta Pital porque ahi es donde los personajes heridos van a ser curados y tratados
-main
