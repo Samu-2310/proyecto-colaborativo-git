@@ -1,0 +1,1 @@
+Elegi a Jiren porque es muy fuerte pero no depende solo del poder sino también de su disciplina y su forma de pensar me gusta que demuestra todo con acciones y no hablando mucho y representa el esfuerzo y la constancia que son cosas importantes tanto en el entrenamiento como en la vida
