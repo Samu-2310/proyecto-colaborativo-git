@@ -1,1 +1,2 @@
 Elegí a C18 porque es un personaje fuerte, con carácter firme y seguro, que no se deja pasar por encima. Me representa pq puede mostrarse seria o directa, pero al mismo tiempo tiene un lado más tranquilo y le importa mucho su familia. Además, es un personaje que me llamó la atención por su personalidad y su forma de actuar.
+que dice señora usted esta equivocada
