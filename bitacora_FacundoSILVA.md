@@ -1,1 +1,0 @@
-Lo eleji porque me da risa que un enano cabezon y morado se el pesonaje mas poderodo del universo y por eso lo eleji.
