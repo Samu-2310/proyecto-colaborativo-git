@@ -1,0 +1,1 @@
+Elegí el Planeta Makyo porque representa uno de los mayores desafíos para los defensores de la Tierra y un momento clave en el crecimiento de Gohan

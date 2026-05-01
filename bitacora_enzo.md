@@ -1,0 +1,1 @@
+Es uno de los personajes que mas me gusta, aparte de que es un capo, lit se enfrento a un alienigena que habia ganado casi a todos del anime, y depsues de eso se volvio un ganador de todo.
