@@ -1,0 +1,1 @@
+El Planeta Vampa se caracteriza por ser un entorno desértico y peligroso, con condiciones climáticas extremas y pocos recursos naturales. Es un lugar donde la vida es difícil, pero no imposible. Su importancia radica en haber sido el hogar de guerreros que lograron adaptarse y sobrevivir en condiciones adversas.
