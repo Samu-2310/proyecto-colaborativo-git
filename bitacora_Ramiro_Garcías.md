@@ -1,4 +1,0 @@
-Elegí a Pequeño Buu. Es la transformación final del tenebroso y rosa personaje Majin Buu, siendo pequeño buu la última forma
-y más poderosa. Aparte de que en esta transformación no dice casi ninguna palabra y se rie del enemigo como un maniático.
-Sus habilidades son convertir a sus enemigos en chocolate y comerselos, absorción de enemigos, regeneración extrema, entre
-otras.
