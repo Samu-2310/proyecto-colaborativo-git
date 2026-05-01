@@ -1,0 +1,1 @@
+Planeta Vegeta - Mundo natal de los Saiyajin, destruido por Freezer.
