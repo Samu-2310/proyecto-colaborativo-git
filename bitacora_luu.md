@@ -1,1 +1,0 @@
-Elegí el personaje Launch porque me gusta que tenga dos personalidades distintas al estornudar

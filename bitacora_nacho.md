@@ -1,0 +1,3 @@
+Mientras otros buscan superar sus límites casi sin miedo, Krillin sí siente miedo. Se nota en muchas peleas que duda, que sabe que está en desventaja. Pero lo importante es que igual decide pelear. No porque crea que va a ganar, sino porque quiere proteger a los demás. Esa diferencia es clave: los saiyajin luchan por orgullo o superación, Krillin muchas veces lo hace por las personas que quiere.
+
+También es distinto en su forma de pensar. No se basa solo en fuerza bruta, sino en estrategia. Técnicas como el Kienzan muestran que compensa su falta de poder con inteligencia. Es más consciente del peligro que lo rodea, lo que lo hace más “real” que otros personajes.
