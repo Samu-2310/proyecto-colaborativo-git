@@ -1,1 +1,1 @@
-Elegí el personaje pan porque es nieta de Goku. Es purA e inocente que rie mucho 
+Elegí el personaje pan porque es nieta de Goku. Es pura e inocente y se rie mucho 
