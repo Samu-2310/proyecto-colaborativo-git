@@ -1,0 +1,1 @@
+Hoy investigué a Cell y exploré el planeta de los Kaioshin.
