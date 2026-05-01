@@ -1,2 +1,0 @@
-Milk: Es la esposa de Goku y madre de Gohan y Goten. Es una guerrera muy fuerte y protectora de su familia.
-Por su gran amor por su familia, llego al planeta del Cristal N°15, donde pudo compartir tiempo de calidad con su familia.
